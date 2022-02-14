@@ -1,2 +1,1 @@
-# seanhugh.github.io
-Public Website
+# REMOVED
